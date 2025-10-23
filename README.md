@@ -1,2 +1,0 @@
-# silpinacyantik
-Website
